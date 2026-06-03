@@ -1,4 +1,4 @@
-# 
+# Nouveau pairs trading bot modules complémentaires pour Mac OS | Exclusif pairs trading bot modules complémentaires pour PC Windows. Avec ordres stop-loss et traitement par lots — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
